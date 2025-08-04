@@ -71,7 +71,7 @@ Unique features:
 
 # <img width="27" height="25" alt="image" src="https://github.com/user-attachments/assets/b0953de5-baca-4c57-8b47-50821f26448e" /> GITHUB LINK
 
-https://github.com/Tharun9092
+https://github.com/guptashaurya8888888888-oss/Project-Ibm
 
 # 🪩 FUTURE SCOPE
 
@@ -111,7 +111,6 @@ https://github.com/Tharun9092
 
 # <img width="30" height="25" alt="image" src="https://github.com/user-attachments/assets/f4d40696-5161-4447-acbb-3fc10668648d" /> LINKED IN 
 
-Connect me through linked in : https://www.linkedin.com/in/tharun-kumar-reddy-6941a22a6/
 
 # 🙏 THANK YOU
 
