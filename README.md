@@ -109,7 +109,6 @@ https://github.com/guptashaurya8888888888-oss/Project-Ibm
 <img width="1919" height="867" alt="Screenshot 2025-07-31 144709" src="https://github.com/user-attachments/assets/7f0e1860-c072-4c4d-b127-f3b2f61136cc" />
 
 
-# <img width="30" height="25" alt="image" src="https://github.com/user-attachments/assets/f4d40696-5161-4447-acbb-3fc10668648d" /> LINKED IN 
 
 
 # 🙏 THANK YOU
